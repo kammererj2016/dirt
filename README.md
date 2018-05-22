@@ -1,0 +1,2 @@
+# dirt
+An anonymous source submitted these photos to the Hoot’s editorial board, along with this note: For the sake of public decency, there are pictures I’ve withheld, but these alone should be enough to show that Lacey Whittaker has been anything but loyal to her boyfriend of six months, Jake Hannigan. She has been on dates with seven other people, as if it were not enough to simply cheat on Jake in the old-fashioned way. No word yet on how her parents must feel about the implication in her Tinder bio that she does it for the money.
